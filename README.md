@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a BCA (Bachelor of Computer Applications) student with a strong interest in technology and creativity. <br>I enjoy graphic design, video editing, and vlogging, where I combine technical skills with creative ideas. <br>I like learning new tools and exploring how technology and design work together to create engaging digital content. <br>I am always eager to improve my skills, take on new challenges, and grow both academically and creatively.
+I am a BCA (Bachelor of Computer Applications) student in IMS GHAZIABAD with a strong interest in technology and creativity. <br>I enjoy graphic design, video editing, and vlogging, where I combine technical skills with creative ideas. <br>I like learning new tools and exploring how technology and design work together to create engaging digital content. <br>I am always eager to improve my skills, take on new challenges, and grow both academically and creatively.
 
 
 ## 🌐 Socials:
